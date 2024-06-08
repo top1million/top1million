@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aasahashish@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/0/my-drive](https://drive.google.com/drive/u/0/my-drive](https://drive.google.com/file/d/10vEcaXrXlJcu64EKpTwhbW8k64MSTgfo/view?usp=sharing))](https://drive.google.com/file/d/10vEcaXrXlJcu64EKpTwhbW8k64MSTgfo/view?usp=sharing)
+- 📄 Know about my experiences (https://drive.google.com/drive/u/0/my-drive](https://drive.google.com/file/d/10vEcaXrXlJcu64EKpTwhbW8k64MSTgfo/view?usp=sharing))](https://drive.google.com/file/d/10vEcaXrXlJcu64EKpTwhbW8k64MSTgfo/view?usp=sharing)
 
 - ⚡ Fun fact **I love Swimming**
 
