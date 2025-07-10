@@ -3,15 +3,10 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=top1million&label=Profile%20views&color=0e75b6&style=flat" alt="top1million" /> </p>
 
-- 🔭 I’m currently working on [Medusajs](https://medusajs.com/)
-
 - 🌱 I’m currently learning **K8s , Docker , Jenkins**
 
 - 📫 How to reach me **aasahashish@gmail.com**
 
-- 📄 Know about my experiences [Cv Link](https://drive.google.com/file/d/10vEcaXrXlJcu64EKpTwhbW8k64MSTgfo/view?usp=sharing)
-
-- ⚡ Fun fact **I love Swimming**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
